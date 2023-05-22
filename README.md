@@ -1,0 +1,1 @@
+# AlgortimaSesi12
